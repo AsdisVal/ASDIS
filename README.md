@@ -1,2 +1,2 @@
-# ASDIS
-Verkefni sem eru skemmtileg
+# Ásdís Valtýsdóttir
+Verkefni sem eru skemmtileg að mínu mati
